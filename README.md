@@ -1,1 +1,0 @@
-A passionate and enthusiastic data scientist who wants to pursue a career in big data in cloud platforms. Have 3+ years of industrial and academic experience handling Python ML / AI tools in Exploratory Data Analysis (EDA), Predictive Analytics and BI reports. Quick learner with great people skills and focus on problem-solving.
